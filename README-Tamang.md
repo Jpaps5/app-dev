@@ -7,17 +7,17 @@
   
 ### Why I love these?
   ---
-## Green Book
+## [Green Book] (https://www.rottentomatoes.com/m/green_book)
   - Dynamic characters
   - Adresses real world issues (Racism)
   - Shows character's flaws
   ---
-## Hidden Figures
+## [Hidden Figures] (https://www.rottentomatoes.com/m/hidden_figures)
   - Based on real life story
   - Also addresses real world issues (Racism and Sexism)
   - Includes a historical human achievement about getting to moon
   ---
-## Interstellar
+## [Interstellar] (https://www.rottentomatoes.com/m/interstellar_2014)
   - BEST sfx in movies
   - Accurate yet emotional depiction of humanity and scientific laws
   - Great movie ending
